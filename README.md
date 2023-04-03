@@ -1,5 +1,5 @@
 # Introduction
-Hi there! I'm just your average guy who posts online about whatever I find interesting, what else did you expect?
+Hi there! I'm just your average guy who posts online (Mostly on Twitter) about whatever I find interesting, what else did you expect?
 
 You can find my other socials here <br>
 https://lnk.bio/JustNathan
